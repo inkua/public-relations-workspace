@@ -14,3 +14,25 @@ A continuación detallare como esta conformado el departamento de Relaciones Pú
 | Coordinador de Tareas RRPP2  | Vacante |
 | Relacionista Publico | Todos los Practicantes |
 ### Funciones del Relacionista Público de InkuA
+El Relacionista Público de InkuA tiene como funciones principales:
+* Comunicar 
+* Conectar 
+* Gestionar Contactos
+* Gestionar Relaciones 
+* Vocero
+* Organizar Eventos
+* Difundir Noticias y Novedades
+* Gestionar Crisis y Conflictos 
+* Proteger Reputación y Cuidado de Imagen
+
+//continuará //
+
+
+
+
+
+
+
+
+
+
