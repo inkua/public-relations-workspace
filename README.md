@@ -48,6 +48,12 @@ Colaborar con fundaciones, organizaciones sin fines de lucro y/o privadas, desar
 Promover el crecimiento de los practicantes dentro de la organización, para así potenciar y formar los líderes del futuro.
 Sostener un ambiente de colaboración, empatía y compañerismo en la realización de todas las actividades y proyectos, infundiendo confianza, seguridad y transparencia en el manejo de los recursos humanos.
 
+EL VALOR DE LAS RELACIONES PÚBLICAS EN LA FUNDACIÓN 
+
+El objetivo de realizar procesos y acciones de Relaciones Públicas en una organización sin fines de lucro, están vinculados a la sostenibilidad de una organización, buscar posicionamiento a un menor costo y reforzar la recaudación de fondos. 
+La finalidad que se busca es generar confianza ante otros públicos como organizaciones pares, donantes institucionales, donantes individuales, empresas, etc. La confianza permite generar alianzas, recibir donaciones, asociarse con otras organizaciones, entre otros elementos. 
+
+
 
 
 
