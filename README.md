@@ -10,8 +10,10 @@ A continuación detallare como esta conformado el departamento de Relaciones Pú
 | Directora  | Clarisa Ishii  |
 | Responsable RRPP1 | Maria Belen Campos |
 | Responsable RRPP2 | Martina Fatila  |
+| Responsable RRPP3 | Ornella Mendez  |
 | Coordinador de Tareas RRPP1  | Sergio Santinelli  |
 | Coordinador de Tareas RRPP2  | Fiamma Migliore |
+| Coordinador de Tareas RRPP3  |1 |
 | Relacionista Publico | Todos los Practicantes |
 ### Funciones del Relacionista Público de InkuA
 El Relacionista Público de InkuA tiene como funciones principales:
